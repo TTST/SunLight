@@ -15,9 +15,9 @@ Download the "Daylight Calculator App" now and let us enhance your house selecti
 
 <span style="color:red; font-size:18px;">Support or Contact</span>
 
-<span style="color:red; font-size:16px;">qqGroup 331953595</span>
+<span style="color:red; font-size:16px;">qqGroup: 770905310</span>
 
-<span style="color:red; font-size:16px;">Email:supportsunlight@163.com</span>
+<span style="color:red; font-size:16px;">Email: supportsunlight@163.com</span>
 
 
 Beijing Kata Technology Co., Ltd.
