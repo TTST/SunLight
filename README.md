@@ -11,7 +11,7 @@ Whether you need to assess lighting conditions during the house-buying process o
 Download the "Daylight Calculator App" now and let us enhance your house selection and quality of life together!
 
 
-![hi](sunlight3.PNG)
+![hi](sunlight4.PNG)
 
 <span style="color:red; font-size:18px;">Support or Contact</span>
 
