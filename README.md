@@ -11,9 +11,13 @@ Whether you need to assess lighting conditions during the house-buying process o
 Download the "Daylight Calculator App" now and let us enhance your house selection and quality of life together!
 
 
-![hi](sunlight1.PNG)
+![hi](sunlight3.PNG)
 
 <span style="color:red; font-size:18px;">Support or Contact</span>
-<span style="color:red; font-size:16px;">qq群 331953595</span>
+
+<span style="color:red; font-size:16px;">qqGroup 331953595</span>
 
 <span style="color:red; font-size:16px;">Email:supportsunlight@163.com</span>
+
+
+Beijing Kata Technology Co., Ltd.
