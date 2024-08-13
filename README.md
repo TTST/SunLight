@@ -20,4 +20,3 @@ Download the "Daylight Calculator App" now and let us enhance your house selecti
 <span style="color:red; font-size:16px;">Email: supportsunlight@163.com</span>
 
 
-Beijing Kata Technology Co., Ltd.
